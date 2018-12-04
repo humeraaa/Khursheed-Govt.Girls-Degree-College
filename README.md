@@ -1,0 +1,1 @@
+# Khursheed-Govt.Girls-Degree-College
